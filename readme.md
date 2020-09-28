@@ -1,0 +1,1 @@
+A resume for Geoffrey McCabe, aka omegadesigner.
